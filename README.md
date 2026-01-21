@@ -1,0 +1,1 @@
+I made this project on the captains of T20 world from 2007 to 2024 and their progresses as being captains. And now T20 world cup 2026 is coming and now captain is Salman Ali Agha and every Pakistani is hoping for the best progress in the tournament.
